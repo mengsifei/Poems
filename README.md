@@ -59,6 +59,8 @@
 春花秋月何时了？往事知多少。
 * [辛弃疾 〔宋代〕：丑奴儿·书博山道中壁](https://so.gushiwen.cn/shiwenv_2ee36eb2ccf7.aspx)\
 少年不识愁滋味，爱上层楼。
+* [岳飞 〔宋代〕：满江红·写怀](https://so.gushiwen.cn/shiwenv_19f9f352c186.aspx) \
+怒发冲冠，凭栏处、潇潇雨歇。
 
 # 想背的
 * [王勃 〔唐代〕：滕王阁序](https://so.gushiwen.cn/shiwenv_ce802de625e5.aspx)
@@ -70,3 +72,5 @@
 * [李清照 〔宋代〕：如梦令·常记溪亭日暮](https://so.gushiwen.cn/shiwenv_3e33bfbb8f79.aspx)
 * [李清照 〔宋代〕：如梦令·昨夜雨疏风骤](https://so.gushiwen.cn/shiwenv_3ffd5d0653a9.aspx)
 * [苏轼〔宋代〕：江城子·乙卯正月二十日夜记梦](https://so.gushiwen.cn/shiwenv_567fcf6ffefb.aspx)
+* [诸葛亮 〔两汉〕：出师表](https://so.gushiwen.cn/shiwenv_8bc0871fe00b.aspx)
+* [这里大部分需要背](https://so.gushiwen.cn/shiwens/default.aspx?cstr=%e4%b8%a4%e6%b1%89)
